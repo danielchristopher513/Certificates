@@ -1,2 +1,2 @@
 # Certificates
-## These are the Cerficates i have been awarded
+## These are the Cerficates I have been awarded
